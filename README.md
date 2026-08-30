@@ -1,1 +1,13 @@
-work in progress :P
+work in progress
+
+
+　　　ㅤ۫　 ⠀⠀　　⑅　 ⠀⠀ㅤ۫　
+　　(๑´ `๑) 　or halo col.
+　　　ㅤ۫　 ⠀⠀　　⑅　 ⠀⠀ㅤ۫　
+
+　　♡⸝　offtab 24/7 & c+h
+⠀―⠀　adult　ᴖᴖ　16- dni
+　　⠀✿⠀　whisp 2 int　　₊　　˙　
+
+　　e　inspo ok! do not copy　໒୧
+　　　𝄢　read links 4 info　‿⠀𓈒⠀
