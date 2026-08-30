@@ -9,5 +9,5 @@ work in progress
 ⠀―⠀　adult　ᴖᴖ　16- dni
 　　⠀✿⠀　whisp 2 int　　₊　　˙　
 
-　　e　inspo ok! do not copy　໒୧
-　　　𝄢　read links 4 info　‿⠀𓈒⠀
+　　Ი⁠ᰍ　inspo ok! do not copy　໒୧
+　　　𝄢　read links 4 info　⠀𓈒⠀
