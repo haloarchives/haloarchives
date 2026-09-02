@@ -5,7 +5,7 @@
   
 ⠀―⠀　adult　ᴖᴖ　16- dni
 
-　　⠀✿⠀　whisp 2 int
+　　⠀✿⠀　whisp 2 interact
 
 　　Ი⁠ᰍ　inspo ok! do not copy　໒୧
   
