@@ -25,7 +25,7 @@
 　Ი⁠ᰍ　inspo ok! do not copy　໒୧
 
 <details>
-  <summary> 　　　𝄢　read here 4 info　⠀𓈒⠀ </summary>
+  <summary> $${\color{#e65a64}ᰔ }$$ $${\color{#b81617}read}$$ $${\color{#e65a64}here}$$ $${\color{#b81617}for}$$ $${\color{#e65a64}more}$$ $${\color{#b81617}info!　𓈒}$$</summary>
   info info bleh ble work in progress
   
   I love my boyfriend I love ym friends yes
