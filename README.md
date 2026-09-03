@@ -1,10 +1,7 @@
 <img width="700" alt="image" src="https://github.com/user-attachments/assets/6a936994-9aca-4112-9185-e5cb3c2b04e6" />
 
 
-<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/d6f951dc-31c3-404a-9b44-e0a7c4ec3022" />
-
-
-
+<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/aec4e483-bb23-48e8-8ca9-3d8854a6e14b" />
 
 
 <br>
@@ -17,7 +14,8 @@
     </tr>
   </table>
 
-　　♡⸝　offtab 24/7 & c+h
+
+　　　♡⸝　offtab 24/7 & c+h
 
 ⠀―⠀　adult　ᴖᴖ　under 16 dni　 <img src="https://files.catbox.moe/gv294o.gif" width="20" alt="image">
 
