@@ -30,7 +30,7 @@
   
 max, venny, og land, more ♡
   
-occasional tone tags
+ask about my interests i have autism
 
 don't use /lh or /nm at me
 
