@@ -5,12 +5,13 @@
 
 
 
+
 <br>
 <br>
   <table>
     <tr>
       <td>
-      $${\color{#b81617}ଘ(*. .)}$$　<img src="https://files.catbox.moe/4v63dl.gif" width="20" alt="image">　 $${\color{#e65a64}HALO \space \space COLLECTIVVE}$$ <br>
+      $${\color{#b81617}ଘ(*. .)}$$　<img src="https://github.com/user-attachments/assets/08ffccbb-a342-4e1a-abe4-b1aa8b8f50ec" width="20" alt="image">　 $${\color{#e65a64}HALO \space \space COLLECTIVVE}$$ <br>
       </td>
     </tr>
   </table>
@@ -18,7 +19,7 @@
 
 　　　♡⸝　offtab 24/7 & c+h
 
-⠀―⠀　adult　ᴖᴖ　under 16 dni　 <img src="https://files.catbox.moe/gv294o.gif" width="20" alt="image">
+⠀―⠀　adult　ᴖᴖ　under 16 dni　 <img src="https://github.com/user-attachments/assets/ccbece3c-68e4-4d57-92b4-b8eab6fff5ee" width="20" alt="image">
 
 　　⠀✿⠀　whisper to interact
 
