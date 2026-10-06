@@ -34,6 +34,8 @@ ask about my interests i have autism
 don't use /lh or /nm at me
 
 i block freely, probably wont unhide
+
+I make kys and die jokes
   
   </details>
 
