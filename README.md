@@ -1,7 +1,6 @@
-<img width="700" alt="image" src="https://github.com/user-attachments/assets/6a936994-9aca-4112-9185-e5cb3c2b04e6" />
+<img width="700" alt="image" src="https://files.catbox.moe/2o414j.png" />
 
-
-<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/e5bb369a-6153-4cda-8bb6-61d17320f7a9" />
+<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/f78595c2-ca11-4f64-97b8-01816dcca22d" />
 
 
 
@@ -40,7 +39,7 @@ i block freely, probably wont unhide
 
 
 
-<img width="700" alt="image" src="https://github.com/user-attachments/assets/6a936994-9aca-4112-9185-e5cb3c2b04e6" />
+<img width="700" alt="image" src="https://files.catbox.moe/2o414j.png" />
 
 <p align="center">
 </p>
