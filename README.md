@@ -1,6 +1,7 @@
 <img width="700" alt="image" src="https://files.catbox.moe/2o414j.png" />
 
-<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/f78595c2-ca11-4f64-97b8-01816dcca22d" />
+<img width="400" align="left" alt="image" src="https://github.com/user-attachments/assets/10e0e546-add5-4641-ba4e-959c75c11653" />
+
 
 
 
